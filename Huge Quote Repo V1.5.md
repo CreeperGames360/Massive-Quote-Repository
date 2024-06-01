@@ -307,7 +307,7 @@ Special Thanks:
 **"N###a if anything you're the crack addict if you're watching that shit"**
 
 [Mooshy]
-**"NEVER COME IN THIS HOUSE AGAIN, NIGGAAAAAA!!!!"**
+**"NEVER COME IN THIS HOUSE AGAIN, N###AAAAA!!!!"**
 
 [Spider-man's Child]
 **"I'm jumping!!! because its easter!!!!1!"**
